@@ -1,7 +1,7 @@
 # About myself
 - Syntactic poet
 - Loves a good brew
-- Devotee of Chirst Jesus
+- Devotee of Christ Jesus
 
 ## Projects I'm working on
 
